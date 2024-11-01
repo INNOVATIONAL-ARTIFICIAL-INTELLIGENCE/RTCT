@@ -1,2 +1,2 @@
 # RTMLC
-Free View, Co-Creation and Sharing only after co-signing the IAI Code License.
+Free View, Edit, Co-Create, Co-Share and Joint Economic Exploitation only after Co-Signing the IAI Code License.
